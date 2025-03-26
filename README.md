@@ -1,11 +1,14 @@
 ## hello yes you.
 
 xe/they/he, we/us
+
 c+h encouraged we wont mind cudpile and c+h in general no need to ask, whisper us throughly if you wanna talk.
 
 **STATUS**
+
 🌙 . afk or sleeping
-🚫 . online (sometimes we are offtab so slow reply.
+
+🚫 . online (sometimes we are offtab so slow reply.)
 
 we dont play with status often
 
