@@ -2,7 +2,7 @@
 
 xe/they/he, we/us
 
-c+h encouraged we wont mind cudpile and c+h in general no need to ask, whisper us throughly if you wanna talk.
+c+h encouraged we dont mind cudpile and c+h in general no need to ask, whisper us throughly if you wanna talk.
 
 **STATUS**
 
